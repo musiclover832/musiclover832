@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @musiclover832
+- 👀 I’m interested in music
+- 🌱 I’m currently learning music
+- 💞️ I’m looking to collaborate on music
+- ⚡ Fun fact: i like music
